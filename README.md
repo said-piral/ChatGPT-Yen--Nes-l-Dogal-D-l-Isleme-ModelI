@@ -1,0 +1,1 @@
+# ChatGPT-Yen--Nes-l-Dogal-D-l-Isleme-ModelI
